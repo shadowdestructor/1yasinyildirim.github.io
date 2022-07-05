@@ -1,2 +1,0 @@
-# 1yasinyildirim.github.io
- 
